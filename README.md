@@ -1,1 +1,1 @@
-# Welcome
+![KillAllChickens logo](KAClogoFIXED.png)
