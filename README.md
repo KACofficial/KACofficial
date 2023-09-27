@@ -1,1 +1,1 @@
-![KillAllChickens logo](KAClogoFIXED.png)
+![KillAllChickens logo](KAClogoREFINED.png)
